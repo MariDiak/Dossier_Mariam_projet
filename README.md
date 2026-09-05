@@ -67,4 +67,6 @@ This repository compiles my academic work: Master's thesis, coursework, and teac
 ### Contact
 
 - 📧 diakitemariam535@gmail.com
-- 🔗 linkedin.com/in/mariam-diakite
+- 📧 mariam.diakite@um6p.ma
+- 🔗 linked-in.com/in/mariamdiakite-
+8ab26021a
