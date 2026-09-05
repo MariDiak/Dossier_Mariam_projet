@@ -31,7 +31,8 @@ Ce dépôt regroupe l'ensemble de mes travaux académiques : mémoire de master,
 
 - 📧 diakitemariam535@gmail.com
 - 📧 mariam.diakite@um6p.ma
-- 🔗 linkedin.com/in/mariam-diakite
+- 🔗 linked-in.com/in/mariamdiakite-
+8ab26021a
 
 ---
 
